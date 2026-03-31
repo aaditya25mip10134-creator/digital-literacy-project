@@ -56,11 +56,11 @@ Clear communication, respectful tone, and thinking before posting can prevent su
 
 Canva (for infographic)
 
-Google Docs 
+Google Docs:- https://forms.gle/T1jT2AoTDGt1ymHy9
 
-linkdin
+linkdin:-www.linkedin.com/in/aaditya-singhal-b048502a0
 
-github
+github:-https://github.com/aaditya25mip10134-creator
 
 kaggle
 
